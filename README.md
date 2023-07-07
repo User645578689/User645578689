@@ -2,7 +2,7 @@
 - 👀 I’m interested in changing my grades at school so my mom wont yell at me 
 - 🌱 I’m currently learning health and its not going so good 
 - 💞️ I’m looking to collaborate on anything 
-- 📫 How to reach me maddyprathervb@gmail.com 
+- 📫 How to reach me dont
 
 <!---
 User645578689/User645578689 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
